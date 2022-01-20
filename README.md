@@ -1,5 +1,5 @@
-![flying-whales](flying-whales.jpg)
-
+Hi! 🤘 
+🦕 🐋 🐳
 <!--
 **mehmetka/mehmetka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
