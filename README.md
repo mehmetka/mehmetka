@@ -1,6 +1,9 @@
 Hi! 🤘  
 🐋 🐳 🦕  
 🎸
+
+![friends-ross-hi](https://c.tenor.com/mZO_FZIjgTgAAAAM/ross-friends.gif)
+
 <!--
 **mehmetka/mehmetka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
