@@ -8,7 +8,7 @@ Hi! 🤘
 - 🤘 I love Metal music, especially: Gojira, Meshuggah, Dagoba, Behemoth, Septicflesh, Deathspell Omega
 
 - ⚡ Fun fact:
-  - I love whales (especially the flying ones and 52-hertz)
+  - I love whales (especially the flying ones, 52-hertz and who carry containers)
   - I love Friends
 
 ```
