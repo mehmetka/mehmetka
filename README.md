@@ -13,10 +13,12 @@ Hi! 🤘
 
 ```
 In the misty morning, on the edge of time
-... We've lost the rising sun
-... We sailed across the air before we learned to fly
-... We thought that it could never end
-... We're lost children of the sea
+We've lost the rising sun
+...
+We sailed across the air before we learned to fly.
+We thought that it could never end
+...
+We're lost children of the sea
 ~ Ronnie Jame Dio
 ```
 
