@@ -2,7 +2,7 @@ Hi! 🤘
 🐋 🐳 🦕  
 🎸
 
-![friends-ross-hi](https://c.tenor.com/mZO_FZIjgTgAAAAM/ross-friends.gif?style=centerme)
+![fly-you-fools](https://media.giphy.com/media/rBblrZDuvOaJi/giphy.gif)
 
 - 💬 Ask me about DevOps, Go
 - 🤘 I love Metal music, especially: Gojira, Meshuggah, Dagoba, Behemoth, Septicflesh, Deathspell Omega
